@@ -13,4 +13,6 @@ Email: info@n881.org.
 
 Website: https://n881.org/
 
+Author: https://n881.org/coo-bull-do/
+
 #n88 #n881 #n881org #n881_org #nhacain88 #n88casino
